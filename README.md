@@ -1,2 +1,1 @@
-# faq
-faq
+Ways to Call Southwest
